@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Cloud Computing**
 
-- 📫 How to reach me **anungowda01@gmail.com**
+- 📫 How to reach me **pnanusha01@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
